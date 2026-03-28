@@ -1,0 +1,1 @@
+# TalentScout----AI-Powered-Hiring-Assistant
